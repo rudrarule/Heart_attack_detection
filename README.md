@@ -18,7 +18,27 @@ Website Development:
 
 ![Screenshot 2024-08-02 181021](https://github.com/user-attachments/assets/38cc4684-22fa-4537-a114-1d902d704532)
 
-![Uploading Screenshot 2024-08-02 181122.png…]()
+![Screenshot 2024-08-02 181122](https://github.com/user-attachments/assets/d94486da-35b9-477a-9059-e829b4c329fd)
+
+
+![Screenshot 2024-08-02 181205](https://github.com/user-attachments/assets/5b7d9d0d-5fe7-478e-9aa7-3aee9b515be5)
+
+
+![Screenshot 2024-08-02 181242](https://github.com/user-attachments/assets/e7e53cfe-b5a8-4b3b-9549-0fed387b8492)
+
+
+![Screenshot 2024-08-02 181358](https://github.com/user-attachments/assets/e3759323-57cc-4266-97f8-dabbcf7eed5b)
+
+
+![Screenshot 2024-08-02 181437](https://github.com/user-attachments/assets/f0d627f1-82a9-4351-b830-41da9d2cc7b8)
+
+
+
+
+
+
+
+
 
 
 
